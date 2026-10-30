@@ -15,4 +15,4 @@ Any unauthorized use, modification, or distribution of this Software is strictly
 ### Contact for Permission
 
 - 📧 Email: [kalharap84@gmail.com](mailto:kalharap84@gmail.com)  
-- 🔗 GitHub: [https://github.com/Kalharapasan](https://github.com/Kalharapasan)
+- 🔗 GitHub: [https://github.com/Kalhara84](https://github.com/Kalhara84)
